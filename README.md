@@ -1,1 +1,1 @@
-Just a student and her prorjects!
+Just a student and her projects!
